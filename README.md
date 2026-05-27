@@ -1,2 +1,29 @@
-# haijiao-vip-free
-海角社区破解插件提供全站免VIP在线解析服务。海角社区破解插件支持网页版无视权限去广告、直接播放高清完整视频。区别于传统海角破解版APP，本破解插件纯前端运行，安全无病毒。立即安装海角社区破解插件，获取 akptjb.com 最新防封入口，免费解锁全网限制内容！
+# 海角社区破解插件（新用户绑定TG领取3天全站会员）
+
+### 最新地址发布
+
+官网最新地址更新于 2026年5月27日
+
+🔗 **最新地址:** [https://akptjb.com](https://akptjb.com)
+
+🔗 **备用入口:** [https://www.akptjb.com](https://www.akptjb.com)
+
+---
+
+### 官方联系方式
+
+👨‍💻 **Telegram 客服:** [https://t.me/akptjb](https://t.me/akptjb)
+
+✈️ **官方 TG 交流群:** [https://t.me/akptjb_community](https://t.me/akptjb_community)
+
+---
+
+### 获取最新防封地址
+
+**邮箱获取:** 发送任意邮件至官方邮箱，自动回复最新在线解析地址与插件
+
+📧 **官方邮箱:** [akptjb@proton.me](mailto:akptjb@proton.me)
+
+---
+
+*最后更新: 2026年5月27日*
